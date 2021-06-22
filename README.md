@@ -1,1 +1,1 @@
-# Spencer Turenne's micelanios projects.
+# Spencer Turenne's micellaneous projects.
